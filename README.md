@@ -1,2 +1,2 @@
 # Mozilla-Campus-Club-SSGMCE-Team-
-Team
+Team for session 2022-23
